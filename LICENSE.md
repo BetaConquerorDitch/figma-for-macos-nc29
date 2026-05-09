@@ -1,4 +1,4 @@
-
+instant Figma for macOS Script | gradient maps + UI themes offers the most advanced Figma for macOS script, with gradient maps and UI themes. Ideal for professional designers and
 
 
 
